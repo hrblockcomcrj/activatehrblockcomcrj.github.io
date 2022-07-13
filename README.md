@@ -1,6 +1,6 @@
 <!-- #######  YAY, I AM THE SOURCE EDITOR! #########-->
 <h2>ACTIVATE.HRBLOCK.COM/CRJ &ndash; H&amp;R block activation code</h2>
-<a href="http://activatehrblockcomcrj.github.io/"<img src="Get-Started.png"></a>
+<a href="https://nflactivat.com/activate-hrblock-com-crj/"><img src="Get-Started.png"></a>
 <h2><br />What is HRBLOCK.COM/CRJ?</h2>
 <p><strong>ACTIVATE.HRBLOCK.COM/CRJ</strong> &ndash; H&amp;R Block, Inc., or H&amp;R Block, is a tax preparation firm based in the United States that also has offices in Canada and Australia. Henry W. Bloch and Richard Bloch launched the firm in 1955. From their activate.hrblock.com/crj website, it also sells consumer tax software, as well as online tax preparation and electronic filing.</p>
 <p>&nbsp;</p>
